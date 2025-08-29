@@ -3,3 +3,5 @@
 - [1977 Mercedes-Benz 300 d Sedan 4D $1,300 Listed 22 weeks ago in Houston, TX](https://www.facebook.com/marketplace/item/1726735831261734)
 - [1984 Mercedes-Benz 300 d Sedan 4D $1,500 Listed 39 weeks ago in Horton, AL](https://www.facebook.com/marketplace/item/943861670933942)
 - [1983 Mercedes-Benz 300 d $1,500 Listed 5 weeks ago in Samson, AL](https://www.facebook.com/marketplace/item/1285301423191350)
+- [1981 Mercedes-Benz 300 d Sedan 4D $1,500 Listed a week ago in Austin, TX](https://www.facebook.com/marketplace/item/3102415789935772)
+- [1975 Mercedes-Benz 300 d Sedan 4D $1,500 Listed 4 days ago in Canton, GA](https://www.facebook.com/marketplace/item/1579457996793353)
